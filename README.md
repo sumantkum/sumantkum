@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sumantkumarpandit
+- 👋 Hi, I’m  Sumant kumar pandit
 - 👀 I’m interested in codeing
 - 🌱 I’m currently learning B.tech (CSE)
 - 💞️ I’m looking to collaborate on inhance my knowledge
