@@ -1,5 +1,5 @@
 - 👋 Hi, I’m  Sumant kumar pandit
-- 👀 I’m interested in codeing
+- 👀 I’m interested in coding
 - 🌱 I’m currently learning B.tech (CSE)
 - 💞️ I’m looking to collaborate on inhance my knowledge
 - 📫 How to reach me  social media
